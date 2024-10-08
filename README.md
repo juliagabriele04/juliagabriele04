@@ -3,12 +3,12 @@
 •	*no que estou interessado?*
   💥 ultimamente estou interessado em focar no meu futuro e em mim 
 • *o que estou aprendendo?*
-  🏄 eu estou aprendendo a surfar e jogar vôlei ( meu passa tempo por sinal kk) 
+  🏄 eu estou aprendendo a surfar e jogar vôlei 
 • *curiosidades sobre mim*
   ❓ quero fazer faculdade de perícia criminal e direito, tenho 15 anos, sou uma pessoa que
   se estressa fácil, adoro crianças, amo a praia, amo a natureza 
 • *como entrar em contato comigo*
-  📲  
+  📲  pelo meu Instagram 
 
 <!---
 juliagabriele04/juliagabriele04 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
