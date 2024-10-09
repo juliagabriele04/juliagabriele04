@@ -9,9 +9,9 @@
   se estressa fácil, adoro crianças, amo a praia, amo a natureza 
 • *como entrar em contato comigo*
   📲  pelo meu Instagram 
-
+https://www.instagram.com/juureisss___/profilecard/?igsh=cW1xYmMxN3RuMXYy
 <!---
 juliagabriele04/juliagabriele04 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-o 
+
